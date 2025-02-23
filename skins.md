@@ -1,5 +1,12 @@
 # [lard's](https://osu.ppy.sh/users/17711382) osu skins
 
+# [aristia poddymiona](https://drive.google.com/file/d/1PlFHNBdsLhTR-wQTUUbbBqINAht7ZK5R/view?usp=sharing)
+![screenshot031](https://github.com/user-attachments/assets/6055035a-ff8c-455b-a798-62b021cedea6)
+
+
+# [kappa](https://drive.google.com/file/d/1zf467iujAlzjp-4rrEMoriP1iG-bvTJn/view?usp=sharing)
+![screenshot030](https://github.com/user-attachments/assets/6b67088c-7d86-4cd9-9851-db9e23b10bda)
+
 
 # [whitecat edit](https://drive.google.com/file/d/1CabqIQxhXs3PVpB6i0XtF84JjxX5DPhY/view?usp=share_link)
 ![screenshot025](https://user-images.githubusercontent.com/128342135/226714877-aab5a54d-8261-43b1-a8e5-a722310431c1.jpg)
